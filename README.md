@@ -1,5 +1,8 @@
 🌟 **Hello, I'm Chelsie Stanford!** 🌟
 
+<kbd><img width="219" alt="image" src="https://github.com/chelsielynn15/chelsielynn15/assets/96030240/f9c4e35b-da0b-46d9-bfb6-0e2a0a342a5f">
+
+
 As a passionate Technical Writer, I thrive in startup environments where agility and innovation are at the forefront. 
 
 🚀 **What I Do** 🚀
